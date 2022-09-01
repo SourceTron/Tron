@@ -3,7 +3,7 @@
 --                - Source Tron -                 --
 # [~ Channel Source : قناة السورس ~](https://t.me/JJJJJJTJ)
 --                - Source Tron -                 --
-# [ ~ Dev Alex. ](t.me/xDevAlex)
+# [ ~ Dev Alex. ](https://t.me/xDevAlex)
 --                - Source Tron -                 --
-# [ ~ Dev Aboud. ](t.me/iDAbdullah)
+# [ ~ Dev Aboud. ](https://t.me/iDAbdullah)
 --                - Source Tron -                 --
